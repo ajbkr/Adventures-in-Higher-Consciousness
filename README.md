@@ -2,7 +2,7 @@ Adventures in Higher Consciousness
 ==================================
 
 Listed in chronological order, these links represent the material I read in the
-four years following my enlightenment or illumination.
+three years following my enlightenment or illumination.
 
 * ...
 * https://en.wikipedia.org/wiki/Sahaja
