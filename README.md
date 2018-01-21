@@ -5,6 +5,7 @@ Listed in chronological order, these links represent the material I read in the
 three years following my enlightenment or illumination.
 
 * ...
+* https://www.thomhartmann.com/blog/2003/01/edison-gene-adhd-gifted-creative
 * https://en.wikipedia.org/wiki/Sahaja
 * http://changingminds.org/explanations/theories/deindividuation.htm
 * https://deepblue.lib.umich.edu/handle/2027.42/41486
