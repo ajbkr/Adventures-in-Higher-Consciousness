@@ -5,6 +5,28 @@ Listed in chronological order, these links represent the material I read in the
 three years following my enlightenment or illumination.
 
 * ...
+* http://www.hermes-press.com/altstates.htm
+* http://press.uchicago.edu/ucp/books/book/chicago/B/bo4343091.html
+* https://en.m.wikipedia.org/wiki/Books_of_Breathing
+* http://quantum-mind.co.uk
+* https://books.google.co.uk/books?id=BNnAAwAAQBAJ&pg=PA67&lpg=PA67&dq=hermetic+qabalah+a+course+in+personal+transformation+and+self+empowerment&source=bl&ots=g7-CHZEi2Z&sig=c0g63becLov81QqMMaqL41-H3G0&hl=en&sa=X&ved=2ahUKEwjcpeO_sYzZAhUIU1AKHXXRADoQ6AEwAnoECA0QAQ#v=onepage&q&f=false
+* https://www.davidsongifted.org/Search-Database/entry/A10554
+* http://www.madnessradio.net/intergenerational-trauma-naas-siddiqui-madness-radio/
+* https://www.spirit-animals.com/wasp/
+* http://samvak.tripod.com/narcissismdissociation.html
+* http://www.soul-guidance.com/houseofthesun/individuationprocess.htm
+* http://www.drpsychmom.com/2015/02/28/am-i-aspergers-or-narcissistic/
+* https://www.diamondapproach.org/glossary/refinery_excerpts/individuation-narcissism-associated-lack-development-personal-essence
+* http://sackwinkie.blogspot.co.uk/2007/05/individuation-and-narcissism.html
+* https://en.m.wikipedia.org/wiki/Heinz_Kohut
+* https://en.m.wikipedia.org/wiki/True_self_and_false_self
+* http://www.healingcoyote.com/2014/01/death-grief-and-psychopomp-work.html
+* https://en.m.wikipedia.org/wiki/Book_of_the_Dead
+* https://en.m.wikipedia.org/wiki/Trailokya
+* https://en.m.wikipedia.org/wiki/Ego_death
+* https://en.m.wikipedia.org/wiki/Scholarly_approaches_of_mysticism
+* https://www.mindstructures.com/carl-jung-individuation-process/
+* https://en.m.wikipedia.org/wiki/Psychopathy
 * http://www.mentalhealth.com/home/dx/narcissisticpersonality.html
 * https://thedailyenlightenment.com/2013/11/are-buddhas-omnipotent-omnibenevolent-omniscient/
 * https://www.biddytarot.com/tarot-card-meanings/major-arcana/chariot/
