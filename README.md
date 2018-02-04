@@ -5,6 +5,27 @@ Listed in chronological order, these links represent the material I read in the
 three years following my enlightenment or illumination.
 
 * ...
+* https://en.m.wikipedia.org/wiki/The_Perfect_Matrimony
+* https://en.m.wikipedia.org/wiki/Parable_of_the_Pearl
+* http://www.souledout.org/healing/bluedot/bluedot.html
+* https://www.stevepavlina.com/blog/2005/04/levels-of-consciousness/
+* https://en.m.wikipedia.org/wiki/To_Mega_Therion
+* https://en.m.wikipedia.org/wiki/The_Starfish_and_the_Spider
+* http://www.southerncrossreview.org/18/trickster.htm
+* https://www.mayoclinic.org/diseases-conditions/narcissistic-personality-disorder/symptoms-causes/syc-20366662
+* https://lovelywoundedlady.wordpress.com/2015/05/24/nine-personality-traits-of-narcissistic-personality-disorder/
+* http://www.ilovephilosophy.com/viewtopic.php?f=1&t=157402
+* http://samvak.tripod.com/superman.html
+* https://en.m.wikipedia.org/wiki/Sri_Aurobindo
+* https://hermetic.com/crowley/magick-without-tears/mwt_12
+* https://en.m.wikipedia.org/wiki/Vamachara
+* https://www.432player.com
+* http://www.hinduwebsite.com/tantra.asp
+* https://www.webmd.com/mental-health/narcissistic-personality-disorder
+* https://en.m.wikipedia.org/wiki/Watcher_(angel)
+* http://samvak.tripod.com/thebook.html
+* https://en.m.wikipedia.org/wiki/Enlightenment_(spiritual)
+* http://www.philhine.org.uk/writings/ess_cycchaos.html
 * http://www.hermes-press.com/altstates.htm
 * http://press.uchicago.edu/ucp/books/book/chicago/B/bo4343091.html
 * https://en.m.wikipedia.org/wiki/Books_of_Breathing
