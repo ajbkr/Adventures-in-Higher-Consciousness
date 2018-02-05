@@ -5,6 +5,35 @@ Listed in chronological order, these links represent the material I read in the
 three years following my enlightenment or illumination.
 
 * ...
+* http://sourcesofinsight.com/my-story-of-personal-transformation/
+* https://www.social-hire.com/blog/candidate/career-change-challenges-for-gifted-adults/
+* http://spiritualemergence.org
+* https://en.m.wikipedia.org/wiki/Pronoia_(psychology)
+* https://en.m.wikipedia.org/wiki/The_Exegesis_of_Philip_K._Dick
+* http://sacredscribesangelnumbers.blogspot.co.uk/2011/06/angel-number-22.html
+* http://anaditeaching.com/the-three-dimensions-of-self-realization/
+* https://en.m.wikipedia.org/wiki/Anatta
+* https://gnosticteachings.org/courses/daath-the-tree-of-knowledge.html
+* https://en.m.wikipedia.org/wiki/Mana
+* http://exploringsecondandthirdtier.blogspot.co.uk/2012/08/a-spectrum-of-online-community.html
+* https://en.m.wikipedia.org/wiki/Language_of_the_birds
+* http://www.sunypress.edu/p-3197-transpersonal-knowing.aspx
+* https://en.m.wikiquote.org/wiki/Friedrich_Nietzsche
+* https://en.m.wikipedia.org/wiki/Sahaja
+* http://wanderling.tripod.com/sahaja.html
+* https://en.m.wikipedia.org/wiki/Anahata
+* http://maya-gaia.angelfire.com/sahaja_jivanmukta.html
+* https://en.m.wikipedia.org/wiki/Videha_mukti
+* http://mindfulessays.blogspot.co.uk/2011/05/spiritual-emergency-transformation.html
+* https://en.m.wikipedia.org/wiki/A∴A∴
+* https://en.m.wikipedia.org/wiki/Keter
+* https://albigen.com/uarelove/sahaja.htm
+* http://sacredscribesangelnumbers.blogspot.co.uk/2011/12/angel-number-777.html
+* https://schoolworkhelper.net/carl-jungs-archetype-the-trickster/
+* https://www.mind.org.uk/information-support/your-stories/dissociative-disorder-losing-myself-and-finding-myself/#.WniMtsinw1I
+* https://kennethsorensen.dk/en/symbols-of-transpersonal-experience/
+* http://tomkenyon.com/siddhis
+* http://sengifted.org/misdiagnosis-and-dual-diagnosis-of-gifted-children/
 * http://www.rcpsych.ac.uk/healthadvice/problemsanddisorders/personalitydisorder.aspx
 * http://integralpostmetaphysics.ning.com/forum/topics/bill-torbert
 * https://ultraculture.org/blog/2016/04/05/levels-of-consciousness/
