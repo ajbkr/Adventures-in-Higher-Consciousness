@@ -5,6 +5,29 @@ Listed in chronological order, these links represent the material I read in the
 three years following my enlightenment or illumination.
 
 * ...
+* http://addventurecoaching.com/stevejobsadhd/
+* https://www.mayoclinic.org/diseases-conditions/adult-adhd/symptoms-causes/syc-20350878
+* https://mitpress.mit.edu/books/zen-and-brain
+* https://www.mdjunction.com/forums/depersonalization-disorder-discussions/general-support/2944410-how-to-explain-depersonalization
+* http://www.rare-leadership.org/Maslow_on_transpersonal_psychology.html
+* http://www.davidcolarusso.com/astro/
+* https://www.ancient.eu/article/32/the-eleusinian-mysteries-the-rites-of-demeter/
+* https://tinybuddha.com/blog/how-to-deal-with-criticism-well-25-reasons-to-embrace-it/
+* https://en.wikipedia.org/wiki/Da%27at
+* https://en.wikipedia.org/wiki/Yichudim
+* https://en.wikipedia.org/wiki/Night_of_Pan
+* https://en.wikipedia.org/wiki/Thelema
+* http://www.inner.org/powers/powyichu.htm
+* https://hermetic.com/crowley/book-4/app2
+* https://www.internet-of-the-mind.com/nlp_logical_levels.html
+* https://en.wikipedia.org/wiki/Big_Dipper
+* http://www.nwlink.com/~donclark/leader/leadhb.html
+* http://www.earthbreathing.co.uk/sr.htm
+* https://en.wikipedia.org/wiki/Seven_rays
+* http://www.themystic.org/planes/index.htm
+* https://en.wikipedia.org/wiki/Metamotivation
+* https://en.wikipedia.org/wiki/Tall_poppy_syndrome
+* https://en.wikipedia.org/wiki/Jonah_complex
 * https://weilerpsiblog.wordpress.com/2011/03/26/the-link-between-psychic-ability-schizophrenia-and-psychosis/
 * https://oneworldgifted.weebly.com/blog/missing-pieces-gifted-adults-and-long-term-relationship-issues
 * http://bluefluke.tumblr.com
