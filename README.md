@@ -5,7 +5,7 @@ Listed in chronological order, these links represent the material I read in the
 three years following my enlightenment or illumination.
 
 * https://github.com/ajbkr/A-Year-in-Links
-* ...
+* https://github.com/ajbkr/A-Second-Year-in-Links
 * https://en.m.wikipedia.org/wiki/Decan
 * http://fortune.com/2015/07/08/misfit-economy-clay-phillips/
 * https://en.m.wikipedia.org/wiki/Intrapreneurship
