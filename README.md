@@ -4,7 +4,27 @@ Adventures in Higher Consciousness
 Listed in chronological order, these links represent the material I read in the
 three years following my enlightenment or illumination.
 
+* https://github.com/ajbkr/A-Year-in-Links
 * ...
+* https://en.m.wikipedia.org/wiki/Decan
+* http://fortune.com/2015/07/08/misfit-economy-clay-phillips/
+* https://en.m.wikipedia.org/wiki/Intrapreneurship
+* https://hbr.org/2014/12/build-an-innovation-engine-in-90-days
+* https://plato.stanford.edu/entries/qt-consciousness/
+* https://gifted-adults.com/business-professional-challenges/
+* https://www.success.com/article/john-c-maxwell-6-tips-to-develop-and-model-an-abundance-mindset
+* http://www.martynemko.com/articles/career-advice-for-geniuses_id1275
+* http://www.oecam.com/news/assessing-recruiting-disruptive-talent/
+* http://www.grcne.com/giftedAsperger.html
+* https://www.amazon.co.uk/Middle-Pillar-Balance-Between-Magic/dp/1567181406
+* http://the-mouse-trap.com/2007/12/14/maslows-eight-basic-needs-and-the-eight-stage-devlopmental-model/
+* http://sengifted.org/dabrowskis-theory-of-positive-disintegration-some-implications-for-teachers-of-gifted-students/
+* https://www.amazon.co.uk/Lean-Startup-Innovation-Successful-Businesses/dp/0670921602
+* https://en.m.wikipedia.org/wiki/Gwydion
+* https://en.m.wikipedia.org/wiki/Seven_rays
+* https://www.kundaliniresearch.org/pubs/birth_of_superconscious_brain/
+* http://www.psychologyofjoy.com/superconscious/
+* http://www.issc-taste.org/main/introduction.shtml
 * https://www.essentiallifeskills.net/humanpotential.html
 * https://www.amazon.co.uk/Autism-Sensing-Instinct-Donna-Williams/dp/1853026123
 * https://en.wikipedia.org/wiki/Simon_Magus
