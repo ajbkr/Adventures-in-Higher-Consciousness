@@ -673,3 +673,6 @@ three years following my enlightenment or illumination.
 * https://en.wikipedia.org/wiki/Familiar_spirit
 * https://en.wikipedia.org/wiki/Tzimtzum
 * https://www.marxists.org/reference/archive/hegel/help/easy.htm
+* https://www.amazon.co.uk/Mastery-Robert-Greene-Collection/dp/178125091X
+* http://podcast.scienceofsuccess.co/e/integrating-50000-years-of-human-knowledge-into-a-single-comprehensive-map-of-reality-with-ken-wilber/
+* https://en.m.wikipedia.org/wiki/Summum_bonum
