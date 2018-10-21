@@ -2,7 +2,8 @@ Adventures in Higher Consciousness
 ==================================
 
 Listed in chronological order, these links represent the material I read in the
-three years following my enlightenment or illumination.
+three years following an absolute peak experience, self-actualisation, and
+subsequent self-transcendence (my enlightenment or illumination).
 
 * https://github.com/ajbkr/A-Year-in-Links
 * https://github.com/ajbkr/A-Second-Year-in-Links
